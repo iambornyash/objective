@@ -1,1 +1,5 @@
 # objective
+
+The primary objective of the internship was to gain practical exposure to the functioning of the legal profession and to understand the application of theoretical legal knowledge in real-life situations. The internship aimed to provide hands-on experience in legal drafting, court procedures, case analysis, and client interaction under the guidance of experienced advocates.
+Another important objective was to develop professional skills such as legal research, analytical reasoning, communication, and drafting abilities through active observation and participation in legal work. The internship also sought to familiarize me with courtroom etiquette, litigation procedures, filing processes, and the overall administration of justice.
+The internship further aimed to enhance my understanding of substantive and procedural laws while strengthening my awareness of professional ethics, responsibilities, and standards of conduct expected from legal practitioners. It also intended to build confidence, improve practical understanding of advocacy, and prepare me for future academic and professional pursuits in the field of law.
